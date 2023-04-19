@@ -1,1 +1,1 @@
-https://Debuzz.github.io
+https://debuzzz.github.io/Debuzz.github.io/
